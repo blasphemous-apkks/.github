@@ -3,7 +3,7 @@
 ## What is Blasphemous Apk?
 Blasphemous Apk is an intense action-platformer with a dark fantasy theme. This Android game offers challenging gameplay, immersive storytelling, and brutal combat mechanics. Set in a cursed land, players control The Penitent One, battling grotesque enemies and uncovering deep lore.
 
-# Download Now: 👉👉[ Blasphemous Mod Apk 1.2.0 (Full Game)](https://heyapks.com/) 👈👈
+# Download Now: 👉👉 https://heyapks.com/ 👈👈
 
 ![hq720 (26)](https://github.com/user-attachments/assets/c532047e-d16f-4d5c-bf46-74c4e75ff391)
 
